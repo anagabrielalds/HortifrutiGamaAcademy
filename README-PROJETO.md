@@ -1,0 +1,1 @@
+Todos as imgens foram retiradas do site: https://hortapurper.com.br/
